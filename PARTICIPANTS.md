@@ -1,2 +1,2 @@
-**Participants Name** -_Mohd. Kaif_, _Akbar Sheikh_, _Mohd Atamash_
+**Participants Name** -_Mohd. Kaif_, _Akbar Sheikh_, _Mohd Altamash_
 
